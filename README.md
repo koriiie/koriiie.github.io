@@ -1,1 +1,1 @@
-# korisu.fun
+1 dollar domain lol
